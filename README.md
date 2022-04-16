@@ -1,1 +1,1 @@
-# Very krivo
+# Improved
